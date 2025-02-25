@@ -1,2 +1,2 @@
 # miscellaneous
-# Purpose To inform AkiraChix community about Safeguardingg policy and the fire safetytraining purpose and keypoints
+# Purpose- To inform the AkiraChix community about the Safeguarding policy and the fire safety training purpose and key points
